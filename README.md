@@ -1,3 +1,3 @@
 # Geekster
 
-All Steps : https://onedrive.live.com/view.aspx?resid=457DBBF831FF9B5%211353&id=documents Kindly check
+All Steps :https://1drv.ms/o/s!ArX5H4O_21cEiknNLulQXh5knc3-?e=FEbWdT Kindly check
